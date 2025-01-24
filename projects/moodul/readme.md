@@ -1,4 +1,4 @@
 # Rainer Tahker
 
 
- matemaatika
+ matemaatika valemid ja midagi muud vb. küsimustele vastata ei oska siis oled lihtsalt nuub. 
